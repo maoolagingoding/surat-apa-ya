@@ -1,1 +1,0 @@
-# surat-apa-ya
